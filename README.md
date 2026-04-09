@@ -13,7 +13,7 @@ I’m someone who takes risks, especially on myself, and I’m a true adrenaline
 
 When I’m not writing code, you’ll probably find me:
 
--Watching movies and dissecting the storytelling
+- Watching movies and dissecting the storytelling
 -Traveling to a new destination
 -Trying out new foods and resturants 
 -Training for Hyrox 
