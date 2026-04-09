@@ -14,12 +14,12 @@ I’m someone who takes risks, especially on myself, and I’m a true adrenaline
 When I’m not writing code, you’ll probably find me:
 
 - Watching movies and dissecting the storytelling
--Traveling to a new destination
--Trying out new foods and resturants 
--Training for Hyrox 
--Reading an exicting thriller novel
--Spending time with my dog Canelo
--Hanging out with friends and family
+- Traveling to a new destination
+- Trying out new foods and resturants 
+- Training for Hyrox 
+- Reading an exicting thriller novel
+- Spending time with my dog Canelo
+- Hanging out with friends and family
 
 I’m always open to collaboration, learning, and new ideas. Feel free to reach out via email: delgadilloabel1@gmail.com
  let’s create something amazing together.
