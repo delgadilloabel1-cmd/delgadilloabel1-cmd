@@ -5,7 +5,7 @@ I’m a student at the Marcy Lab School, pursuing my goal of becoming a Software
 
 For years, I thought my future was in law. I studied Political Science and Finance at Saint Peter’s University, motivated by a desire to make a meaningful impact in the world. But as much as I loved the idea of that career, I realized something crucial: life is happening right now, not just in pursuit of a dream job.
 
-So I pressed pause on school and threw myself into the workforce. From retail floors to bartending, from client-facing roles to operations, I got a crash course in people, problem-solving, and business from every angle. Those experiences didn’t just teach me skills — they taught me perspective. I learned how to adapt, lead, and thrive in fast-paced, dynamic environments.
+So I pressed pause on school and threw myself into the workforce. From retail floors to bartending, from client-facing roles to operations, I got a crash course in people, problem-solving, and business from every angle. Those experiences didn’t just teach me skills, they taught me perspective. I learned how to adapt quickly, lead with integrity, and thrive in fast-paced, dynamic environments.
 
 It was during this time that I discovered tech. The speed of innovation, the opportunity for growth, and the flexibility the field offers felt like the perfect fit for my next chapter. I love that I can build things that solve real problems while still living life fully; taking risks, chasing adventures, and embracing challenges along the way.
 
